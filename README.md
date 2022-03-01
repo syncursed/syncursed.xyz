@@ -1,0 +1,1 @@
+# syncursed.xyz
